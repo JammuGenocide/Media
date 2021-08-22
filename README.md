@@ -71,4 +71,6 @@ Muslims in 1947",,Ilyas Chitta,Published 🙌,http://pu.edu.pk/images/journal/st
 22. Unfolding of the 1947 Jammu massacre,Gowhar Geelani,Article,https://thekashmirwalla.com/2020/11/unfolding-of-the-1947-jammu-massacre/
 
 23. Jammu Massacre: How a Hindu journalist recorded the Muslim Massacre, Sabreena Bhat, https://freepresskashmir.news/2017/11/03/jammumassacre70-how-a-hindu-journalist-recorded-the-muslim-massacre/amp/?
+
+24. Jammu 1947, Kashmir life, https://kashmirlife.net/jammu-1947-issue-35-vol-07-89728/ 
  
