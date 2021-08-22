@@ -68,4 +68,7 @@ Muslims in 1947",,Ilyas Chitta,Published 🙌,http://pu.edu.pk/images/journal/st
 21. Jammu Massacre: The saint who became a shrine — Part III,Free Press Kashmir,Bilal Handoo,Article,https://freepresskashmir.news/2018/11/11/jammu-massacre-the-saint-who-became-a-shrine-part-iii/?fbclid=IwAR3kw8anZp-MR8nVtAX8xLPaGXFuimBePNEuuUO6pPE3onRwH0kqq0WxFsw
 
 
-22. Unfolding of the 1947 Jammu massacre,,Gowhar Geelani,Article,https://thekashmirwalla.com/2020/11/unfolding-of-the-1947-jammu-massacre/
+22. Unfolding of the 1947 Jammu massacre,Gowhar Geelani,Article,https://thekashmirwalla.com/2020/11/unfolding-of-the-1947-jammu-massacre/
+
+23. Jammu Massacre: How a Hindu journalist recorded the Muslim Massacre, Sabreena Bhat, https://freepresskashmir.news/2017/11/03/jammumassacre70-how-a-hindu-journalist-recorded-the-muslim-massacre/amp/?
+ 
