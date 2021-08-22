@@ -78,3 +78,5 @@ Muslims in 1947",,Ilyas Chitta,Published 🙌,http://pu.edu.pk/images/journal/st
 https://www.jstor.org/stable/pdf/10.13169/polipers.17.1.0083.pdf?refreqid=excelsior%3A323bb8305f4b8f1d828c4c9c26e5f0b7
 
 26. Oral history with Khalida Ghousia Akhtar, 2016 February 25, Akhtar, Khalida Ghousia, 1937- and Saleem, Sobia https://exhibits.stanford.edu/1947-partition/catalog?f%5Bauthor_person_facet%5D%5B%5D=Akhtar%2C+Khalida+Ghousia%2C+1937-
+
+27. The forgotten Poonch uprising of 1947, Christopher Snedded, article, https://www.india-seminar.com/2013/643/643_christopher_snedden.htm 
