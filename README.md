@@ -73,4 +73,6 @@ Muslims in 1947",,Ilyas Chitta,Published 🙌,http://pu.edu.pk/images/journal/st
 23. Jammu Massacre: How a Hindu journalist recorded the Muslim Massacre, Sabreena Bhat, https://freepresskashmir.news/2017/11/03/jammumassacre70-how-a-hindu-journalist-recorded-the-muslim-massacre/amp/?
 
 24. Jammu 1947, Kashmir life, https://kashmirlife.net/jammu-1947-issue-35-vol-07-89728/ 
- 
+
+25. Impasse of Kashmir and Recurring Pretexts: A Historiographical Analysis Author(s): Rabiya AamirSource: Policy Perspectives , Vol. 17, No. 1 (2020), pp. 83-104
+https://www.jstor.org/stable/pdf/10.13169/polipers.17.1.0083.pdf?refreqid=excelsior%3A323bb8305f4b8f1d828c4c9c26e5f0b7
