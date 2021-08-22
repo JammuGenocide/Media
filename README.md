@@ -76,3 +76,5 @@ Muslims in 1947",,Ilyas Chitta,Published 🙌,http://pu.edu.pk/images/journal/st
 
 25. Impasse of Kashmir and Recurring Pretexts: A Historiographical Analysis Author(s): Rabiya AamirSource: Policy Perspectives , Vol. 17, No. 1 (2020), pp. 83-104
 https://www.jstor.org/stable/pdf/10.13169/polipers.17.1.0083.pdf?refreqid=excelsior%3A323bb8305f4b8f1d828c4c9c26e5f0b7
+
+26. Oral history with Khalida Ghousia Akhtar, 2016 February 25, Akhtar, Khalida Ghousia, 1937- and Saleem, Sobia https://exhibits.stanford.edu/1947-partition/catalog?f%5Bauthor_person_facet%5D%5B%5D=Akhtar%2C+Khalida+Ghousia%2C+1937-
