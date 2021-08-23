@@ -84,3 +84,5 @@ https://www.jstor.org/stable/pdf/10.13169/polipers.17.1.0083.pdf?refreqid=excels
 28. Genocide of Jammu Muslims of 1947 that changed demography & history of J&K, article, M J Alsam, https://countercurrents.org/2020/11/genocide-of-jammu-muslims-of-47-that-changed-demography-history-of-jk/ 
 
 29. Survivor of a massacre, Khalid Bashir Ahmad, https://www.greaterkashmir.com/todays-paper/survivor-of-a-massacre 
+
+30. beg, aziz. (1957). capitative kashmir . Story of a Betrayed and Enslaved People , 2, 12–14.  
