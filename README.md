@@ -88,3 +88,11 @@ https://www.jstor.org/stable/pdf/10.13169/polipers.17.1.0083.pdf?refreqid=excels
 30. beg, aziz. (1957). capitative kashmir . Story of a Betrayed and Enslaved People , 2, 12–14.  
 
 31. Documenting the Forgotten History of Jammu’s Massacred Muslims, https://www.thequint.com/lifestyle/books/documenting-the-forgotten-history-of-jammus-massacred-muslims#read-more , DIVYANI RATTANPAL
+
+32. Kashmiris mark 1947 massacre in disputed Himalayan region, https://www.dailysabah.com/world/asia-pacific/kashmiris-mark-1947-massacre-in-disputed-himalayan-region
+
+33. The world is failing the oppressed people of Kashmir, MOEED YUSUF, https://www.thetimes.co.uk/article/the-world-is-failing-the-oppressed-people-of-kashmir-f8k0k5xkb
+ 
+
+
+
