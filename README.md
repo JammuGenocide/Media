@@ -86,3 +86,5 @@ https://www.jstor.org/stable/pdf/10.13169/polipers.17.1.0083.pdf?refreqid=excels
 29. Survivor of a massacre, Khalid Bashir Ahmad, https://www.greaterkashmir.com/todays-paper/survivor-of-a-massacre 
 
 30. beg, aziz. (1957). capitative kashmir . Story of a Betrayed and Enslaved People , 2, 12–14.  
+
+31. Documenting the Forgotten History of Jammu’s Massacred Muslims, https://www.thequint.com/lifestyle/books/documenting-the-forgotten-history-of-jammus-massacred-muslims#read-more , DIVYANI RATTANPAL
