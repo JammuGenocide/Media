@@ -92,9 +92,6 @@ https://www.jstor.org/stable/pdf/10.13169/polipers.17.1.0083.pdf?refreqid=excels
 32. Kashmiris mark 1947 massacre in disputed Himalayan region, https://www.dailysabah.com/world/asia-pacific/kashmiris-mark-1947-massacre-in-disputed-himalayan-region
 
 33. The world is failing the oppressed people of Kashmir, MOEED YUSUF, https://www.thetimes.co.uk/article/the-world-is-failing-the-oppressed-people-of-kashmir-f8k0k5xkb
- 
-34. Farman Ali, Rao. (2015). Kashmir :A Century Struggle(1846-1948). 10.2139/ssrn.2625479. https://www.researchgate.net/publication/279314623_Kashmir_A_Century_Struggle1846-1948
-
-35. 
+  
 
 
