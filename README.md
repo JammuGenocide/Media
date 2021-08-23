@@ -1,11 +1,7 @@
 # JammuGenocideMedia
 Articles and media related to the the Jammu genocide
 
-
-
-1. Story Description,Publication,Author,Status,Link to story,Date
-"What happened to Muslims in Jammu? Local identity, ‘""the massacre” of 1947’ and the roots of the ‘Kashmir problem’",Journal of South Asian Studies,Christopher Snedden,Published 🙌,https://www.tandfonline.com/doi/abs/10.1080/00856400108723454,"May 8, 2007"
-
+1. The world is failing the oppressed people of Kashmir, MOEED YUSUF, https://www.thetimes.co.uk/article/the-world-is-failing-the-oppressed-people-of-kashmir-f8k0k5xkb
 
 2. "Terrible Fate: ‘Ethnic Cleansing’ of Jammu’
 Muslims in 1947",,Ilyas Chitta,Published 🙌,http://pu.edu.pk/images/journal/studies/PDF-FILES/Artical%20-%207.pdf,
@@ -74,8 +70,7 @@ Muslims in 1947",,Ilyas Chitta,Published 🙌,http://pu.edu.pk/images/journal/st
 
 24. Jammu 1947, Kashmir life, https://kashmirlife.net/jammu-1947-issue-35-vol-07-89728/ 
 
-25. Impasse of Kashmir and Recurring Pretexts: A Historiographical Analysis Author(s): Rabiya AamirSource: Policy Perspectives , Vol. 17, No. 1 (2020), pp. 83-104
-https://www.jstor.org/stable/pdf/10.13169/polipers.17.1.0083.pdf?refreqid=excelsior%3A323bb8305f4b8f1d828c4c9c26e5f0b7
+25. Kashmiris mark 1947 massacre in disputed Himalayan region, https://www.dailysabah.com/world/asia-pacific/kashmiris-mark-1947-massacre-in-disputed-himalayan-region
 
 26. Oral history with Khalida Ghousia Akhtar, 2016 February 25, Akhtar, Khalida Ghousia, 1937- and Saleem, Sobia https://exhibits.stanford.edu/1947-partition/catalog?f%5Bauthor_person_facet%5D%5B%5D=Akhtar%2C+Khalida+Ghousia%2C+1937-
 
@@ -84,14 +79,9 @@ https://www.jstor.org/stable/pdf/10.13169/polipers.17.1.0083.pdf?refreqid=excels
 28. Genocide of Jammu Muslims of 1947 that changed demography & history of J&K, article, M J Alsam, https://countercurrents.org/2020/11/genocide-of-jammu-muslims-of-47-that-changed-demography-history-of-jk/ 
 
 29. Survivor of a massacre, Khalid Bashir Ahmad, https://www.greaterkashmir.com/todays-paper/survivor-of-a-massacre 
+ 
+30. Documenting the Forgotten History of Jammu’s Massacred Muslims, https://www.thequint.com/lifestyle/books/documenting-the-forgotten-history-of-jammus-massacred-muslims#read-more , DIVYANI RATTANPAL
 
-30. beg, aziz. (1957). capitative kashmir . Story of a Betrayed and Enslaved People , 2, 12–14.  
-
-31. Documenting the Forgotten History of Jammu’s Massacred Muslims, https://www.thequint.com/lifestyle/books/documenting-the-forgotten-history-of-jammus-massacred-muslims#read-more , DIVYANI RATTANPAL
-
-32. Kashmiris mark 1947 massacre in disputed Himalayan region, https://www.dailysabah.com/world/asia-pacific/kashmiris-mark-1947-massacre-in-disputed-himalayan-region
-
-33. The world is failing the oppressed people of Kashmir, MOEED YUSUF, https://www.thetimes.co.uk/article/the-world-is-failing-the-oppressed-people-of-kashmir-f8k0k5xkb
   
 
 
