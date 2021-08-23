@@ -82,3 +82,5 @@ https://www.jstor.org/stable/pdf/10.13169/polipers.17.1.0083.pdf?refreqid=excels
 27. The forgotten Poonch uprising of 1947, Christopher Snedded, article, https://www.india-seminar.com/2013/643/643_christopher_snedden.htm 
 
 28. Genocide of Jammu Muslims of 1947 that changed demography & history of J&K, article, M J Alsam, https://countercurrents.org/2020/11/genocide-of-jammu-muslims-of-47-that-changed-demography-history-of-jk/ 
+
+29. Survivor of a massacre, Khalid Bashir Ahmad, https://www.greaterkashmir.com/todays-paper/survivor-of-a-massacre 
