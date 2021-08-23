@@ -80,3 +80,5 @@ https://www.jstor.org/stable/pdf/10.13169/polipers.17.1.0083.pdf?refreqid=excels
 26. Oral history with Khalida Ghousia Akhtar, 2016 February 25, Akhtar, Khalida Ghousia, 1937- and Saleem, Sobia https://exhibits.stanford.edu/1947-partition/catalog?f%5Bauthor_person_facet%5D%5B%5D=Akhtar%2C+Khalida+Ghousia%2C+1937-
 
 27. The forgotten Poonch uprising of 1947, Christopher Snedded, article, https://www.india-seminar.com/2013/643/643_christopher_snedden.htm 
+
+28. Genocide of Jammu Muslims of 1947 that changed demography & history of J&K, article, M J Alsam, https://countercurrents.org/2020/11/genocide-of-jammu-muslims-of-47-that-changed-demography-history-of-jk/ 
