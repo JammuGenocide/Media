@@ -82,6 +82,8 @@ Muslims in 1947",,Ilyas Chitta,Published 🙌,http://pu.edu.pk/images/journal/st
  
 30. Documenting the Forgotten History of Jammu’s Massacred Muslims, https://www.thequint.com/lifestyle/books/documenting-the-forgotten-history-of-jammus-massacred-muslims#read-more , DIVYANI RATTANPAL
 
+31. Terrible Fate: ‘Ethnic Cleansing’ of Jammu’ Muslims in 1947, Illays Chatta, https://bloodiedrivers.wordpress.com/2013/02/17/terrible-fate-ethnic-cleansing-of-jammu-muslims-in-1947/ 
+
   
 
 
