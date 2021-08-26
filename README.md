@@ -86,6 +86,6 @@ Muslims in 1947",,Ilyas Chitta,Published 🙌,http://pu.edu.pk/images/journal/st
 
 32. 'Asian Age' Kills Karan Thapar Column After Mention of '1947 Violence Against Jammu Muslims',Ajoy Ashirwad Mahaprashasta, https://thewire.in/media/partition-jammu-muslims-karan-thapar-asian-age 
 
-  
+33. 1947: The Last Letter, KAshmir Life, https://kashmirlife.net/1947-the-last-letter-123112/ 
 
 
