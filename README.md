@@ -84,6 +84,8 @@ Muslims in 1947",,Ilyas Chitta,Published 🙌,http://pu.edu.pk/images/journal/st
 
 31. Terrible Fate: ‘Ethnic Cleansing’ of Jammu’ Muslims in 1947, Illays Chatta, https://bloodiedrivers.wordpress.com/2013/02/17/terrible-fate-ethnic-cleansing-of-jammu-muslims-in-1947/ 
 
+32. 'Asian Age' Kills Karan Thapar Column After Mention of '1947 Violence Against Jammu Muslims',Ajoy Ashirwad Mahaprashasta, https://thewire.in/media/partition-jammu-muslims-karan-thapar-asian-age 
+
   
 
 
