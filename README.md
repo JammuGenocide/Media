@@ -88,4 +88,6 @@ Muslims in 1947",,Ilyas Chitta,Published 🙌,http://pu.edu.pk/images/journal/st
 
 33. 1947: The Last Letter, KAshmir Life, https://kashmirlife.net/1947-the-last-letter-123112/ 
 
+34. The Silence Is the Loudest Sound - The New York Times, https://www.nytimes.com/2019/08/15/opinion/sunday/kashmir-siege-modi.html , Arundhati Roy 
+
 
