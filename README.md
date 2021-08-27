@@ -90,4 +90,7 @@ Muslims in 1947",,Ilyas Chitta,Published 🙌,http://pu.edu.pk/images/journal/st
 
 34. The Silence Is the Loudest Sound - The New York Times, https://www.nytimes.com/2019/08/15/opinion/sunday/kashmir-siege-modi.html , Arundhati Roy 
 
+35. Horrors of Partition, A.G Noorani, https://frontline.thehindu.com/other/article30164617.ece
+
+
 
