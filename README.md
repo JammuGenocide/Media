@@ -92,5 +92,7 @@ Muslims in 1947",,Ilyas Chitta,Published 🙌,http://pu.edu.pk/images/journal/st
 
 35. Horrors of Partition, A.G Noorani, https://frontline.thehindu.com/other/article30164617.ece
 
+36. The Kathua rape case has brought up disturbing memories of Jammu’s history, ASHUTOSH , https://theprint.in/opinion/the-kathua-rape-case-has-brought-up-disturbing-memories-of-jammus-history/53039/
+
 
 
