@@ -101,3 +101,5 @@ Muslims in 1947",,Ilyas Chitta,Published 🙌,http://pu.edu.pk/images/journal/st
 39. Shabir Ahmad Salaria, kashmir life, https://kashmirlife.net/shabir-ahmad-salaria-146840/ 
 
 40. “We Struggled and God Helped Us” , Kashmir life, https://kashmirlife.net/we-struggled-and-god-helped-us-9899/
+
+41. JAMMU 1947: TALES OF BLOODSHED, Greater Kashmir, https://www.greaterkashmir.com/gk-magazine/jammu-1947-tales-of-bloodshed
