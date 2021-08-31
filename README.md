@@ -97,3 +97,7 @@ Muslims in 1947",,Ilyas Chitta,Published 🙌,http://pu.edu.pk/images/journal/st
 37. Missing since 1947, Hamid Mir, https://indianexpress.com/article/opinion/missing-since-1947-ghulam-fatima-india-pakistan-partition-independence-day/ 
 
 38. Jammu, October 1947, Ramanjit Singh, https://www.punjabpartition.com/single-post/jammu-october-1947 
+
+39. Shabir Ahmad Salaria, kashmir life, https://kashmirlife.net/shabir-ahmad-salaria-146840/ 
+
+40. “We Struggled and God Helped Us” , Kashmir life, https://kashmirlife.net/we-struggled-and-god-helped-us-9899/
