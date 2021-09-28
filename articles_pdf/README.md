@@ -92,7 +92,23 @@ Muslims in 1947",,Ilyas Chitta,Published 🙌,http://pu.edu.pk/images/journal/st
 
 35. Horrors of Partition, A.G Noorani, https://frontline.thehindu.com/other/article30164617.ece
 
-36. ‘The wounds have never healed’: living through the terror of partition https://www.theguardian.com/world/2017/aug/02/wounds-have-never-healed-living-through-terror-partition-india-pakistan-1947 
+36. The Kathua rape case has brought up disturbing memories of Jammu’s history, ASHUTOSH , https://theprint.in/opinion/the-kathua-rape-case-has-brought-up-disturbing-memories-of-jammus-history/53039/
 
+37. Missing since 1947, Hamid Mir, https://indianexpress.com/article/opinion/missing-since-1947-ghulam-fatima-india-pakistan-partition-independence-day/ 
+
+38. Jammu, October 1947, Ramanjit Singh, https://www.punjabpartition.com/single-post/jammu-october-1947 
+
+39. Shabir Ahmad Salaria, kashmir life, https://kashmirlife.net/shabir-ahmad-salaria-146840/ 
+
+40. “We Struggled and God Helped Us” , Kashmir life, https://kashmirlife.net/we-struggled-and-god-helped-us-9899/
+
+41. JAMMU 1947: TALES OF BLOODSHED, Greater Kashmir, https://www.greaterkashmir.com/gk-magazine/jammu-1947-tales-of-bloodshed
+
+42. ‘The wounds have never healed’: living through the terror of partition, https://www.theguardian.com/world/2017/aug/02/wounds-have-never-healed-living-through-terror-partition-india-pakistan-1947
+
+43. Massacre of Jammu Muslims, November 1947, http://kashmirglobal.com/2013/11/03/massacre-jammu-muslims-november-1947.html
+
+44. We cannot be selective about the past in Jammu & Kashmir | Opinion , https://www.hindustantimes.com/columns/we-cannot-be-selective-about-the-past-in-j-k/story-ELfaDpC6UoAfMbBNQTgIsO.html
+ 
 
 
