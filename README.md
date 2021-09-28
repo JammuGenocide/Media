@@ -108,4 +108,7 @@ Muslims in 1947",,Ilyas Chitta,Published 🙌,http://pu.edu.pk/images/journal/st
 
 43. Massacre of Jammu Muslims, November 1947, http://kashmirglobal.com/2013/11/03/massacre-jammu-muslims-november-1947.html
 
+44. We cannot be selective about the past in Jammu & Kashmir | Opinion , https://www.hindustantimes.com/columns/we-cannot-be-selective-about-the-past-in-j-k/story-ELfaDpC6UoAfMbBNQTgIsO.html
+ 
+
 
