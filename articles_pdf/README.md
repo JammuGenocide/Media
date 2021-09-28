@@ -92,5 +92,7 @@ Muslims in 1947",,Ilyas Chitta,Published 🙌,http://pu.edu.pk/images/journal/st
 
 35. Horrors of Partition, A.G Noorani, https://frontline.thehindu.com/other/article30164617.ece
 
+36. ‘The wounds have never healed’: living through the terror of partition https://www.theguardian.com/world/2017/aug/02/wounds-have-never-healed-living-through-terror-partition-india-pakistan-1947 
+
 
 
