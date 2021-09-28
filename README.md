@@ -103,3 +103,7 @@ Muslims in 1947",,Ilyas Chitta,Published 🙌,http://pu.edu.pk/images/journal/st
 40. “We Struggled and God Helped Us” , Kashmir life, https://kashmirlife.net/we-struggled-and-god-helped-us-9899/
 
 41. JAMMU 1947: TALES OF BLOODSHED, Greater Kashmir, https://www.greaterkashmir.com/gk-magazine/jammu-1947-tales-of-bloodshed
+
+42. ‘The wounds have never healed’: living through the terror of partition, https://www.theguardian.com/world/2017/aug/02/wounds-have-never-healed-living-through-terror-partition-india-pakistan-1947
+
+
