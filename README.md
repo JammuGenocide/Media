@@ -106,4 +106,6 @@ Muslims in 1947",,Ilyas Chitta,Published 🙌,http://pu.edu.pk/images/journal/st
 
 42. ‘The wounds have never healed’: living through the terror of partition, https://www.theguardian.com/world/2017/aug/02/wounds-have-never-healed-living-through-terror-partition-india-pakistan-1947
 
+43. Massacre of Jammu Muslims, November 1947, http://kashmirglobal.com/2013/11/03/massacre-jammu-muslims-november-1947.html
+
 
